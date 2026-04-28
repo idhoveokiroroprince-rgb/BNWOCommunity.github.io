@@ -1,4 +1,4 @@
-# BNWOcommunity.github.io
+# Idhoveokiroroprince.github.io
 THE BNWO COMMUNITY 
 The idea of this Club is a safe place where all Blacks, whitebois, Sluts and freaks can freely express themselves and live out their wildest fantasies and desires. As you know not everyone in the world has accepted the BNWO and Black Supremacy so therefore there are haters which is why we keep the Club’s location secret.
 There are so many whitebois out there who cannot be the true sluts and slaves they’re meant to be because of the public community. So join the Club, is like joining a Secret Community with others like you, were you can freely live your life as you wish and slut yourself out as much as you want, here you can serve your Masters to the fullest.
