@@ -48,9 +48,9 @@ cryptocurrency
 PURCHASE YOUR MEMBERSHIP FORM
 
 to purchase your membership form contact the admin via
-hjon75157@gmail.com
-phone number; +1 336-506-6868
-WhatsApp; https://wa.me/message/HORXGIO4R72UD1
+cummingsukmorgan1994@gmail.com
+phone number; +1 442-999-6202
+Signal;https://signal.me/#eu/_tNriF_jRbsDMlNv-HwrSVVIbaf1b2CU0aAUdCJuiWhpFGnYghdA7LovQTFHpDim
 Telegram; https://t.me/AlphaprincekikisBNWOmanagement
 
        REVIEWS 
